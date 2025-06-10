@@ -1,1 +1,1 @@
-#CryptoVerse-Prpjesi
+#CryptoVerse-Projesi
